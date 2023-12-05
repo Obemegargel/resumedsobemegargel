@@ -44,6 +44,7 @@ Previous bosses have thanked me for my hard work and diligence, I see that as an
 I am highly motivated. I see everything you teach me as a way to better my skills to be more helpful.
 When I am on the clock I ensure my time is yours. I limit distractions and ask questions when I need clarification.
 I am also naturally happy. Past coworkers have joked about how they never saw me mad.
+Phenomenal programmer
 
 
 ## Work Experience
